@@ -1,4 +1,4 @@
-Oi!! meu nome é Davi, eu gosto de jogar minecraft e programar.
+Oi!! meu nome é Davi.
 
 📖 eu sou um estudante
 
